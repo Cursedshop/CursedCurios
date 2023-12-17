@@ -1,2 +1,0 @@
-# CursedCurios
-My shop
